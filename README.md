@@ -1,1 +1,0 @@
-# qwerty00010.github.io
